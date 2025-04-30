@@ -22,7 +22,7 @@
 
 ## 📫 How to reach me
 - LinkedIn: [Arpit Adhikari](https://www.linkedin.com/in/arpit-adhikari-075148263/)
-- Email: your.email@example.com
+- Email: adhikariarpit54@gmail.com
 
 ## 🔥 Fun Fact
 I once wrote a program that wrote poems! 🤖✍️
